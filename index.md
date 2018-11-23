@@ -1,3 +1,6 @@
 ## Welcome to Michael Färber's user page
 
-Please go to [http://dbis.informatik.uni-freiburg.de/team/faerber/michael].
+[My private homepage](https://sites.google.com/view/michaelfaerber/).
+[My homepage at the University of Freiburg](http://dbis.informatik.uni-freiburg.de/team/faerber/michael).
+
+
